@@ -1,3 +1,3 @@
 # codeforcoffee
 This is a demo website.
-If you want ot work together whatsapp me on 8887037100
+If you want to work together whatsapp me on 8887037100
